@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there, I’m Mikhail Janli Purba 👋<br>I’m a passionate international graduate with a keen interest in OSINT, web application architecture, and Drawing Sketch. I love exploring new technologies and applying them to solve real-world problems.<br><br>🔭 I’m currently working on projects involving Coding and Translation .<br>🌱 I’m learning more about coding and Sketching.<br>💬 Ask me about computers, Windows 11 performance, and laptop maintenance.<br>📫 How to reach me: janli.purba@gmail.com<br>⚡ Fun fact: I enjoy diving into the intricacies of different constitutions and finding unique synonyms for common words.
+Hi there, I’m Mikhail Janli Purba 👋<br>I’m a passionate international graduate with a keen interest in OSINT, web application architecture, and Drawing Sketch. I love exploring new technologies and applying them to solve real-world problems.<br><br>🔭 I’m currently working on Solar Panel Company .<br>🌱 I’m learning more about coding and Sketching.<br>💬 Ask me about computers, Windows 11 performance, and laptop maintenance.<br>📫 How to reach me: janli.purba@gmail.com<br>⚡ Fun fact: I enjoy diving into the intricacies of different constitutions and finding unique synonyms for common words.
 
 
 ## 🌐 Socials:
